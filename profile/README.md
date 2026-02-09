@@ -3,4 +3,4 @@
 - Доступ платный (для преподавателей бесплатно)
 
 
-[![N|Solid](https://pngimg.com/uploads/telegram/telegram_PNG30.png)](https://t.me/Andrey4ka)
+[![N|Solid](https://pngimg.com/uploads/telegram/telegram_PNG30.png)](https://t.me/Andrey7ka)
